@@ -1,1 +1,1 @@
-# ignatonator.github.io
+# Dolnośląskie Mistrzostwa Squasha dla szkół średnich!
